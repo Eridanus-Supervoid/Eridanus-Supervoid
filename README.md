@@ -3,8 +3,6 @@
 
 **Location:** Montreal, Canada  
 **LinkedIn:** [linkedin.com/in/jeronimo-fernandez-gomez](https://linkedin.com/in/jeronimo-fernandez-gomez)  
-**Email:** capostroso@gmail.com  
-**Phone:** +1 438 773 1375
 
 ---
 
